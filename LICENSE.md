@@ -1,4 +1,4 @@
-#  
+#  elite Automation for Notion for macOS - custom shortcuts and export to PDF offers the most advanced Notion for macOS automation, with custom shortcuts and export to PDF. Ideal for
 
 
 
